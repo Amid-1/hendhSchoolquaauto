@@ -1,1 +1,3 @@
 # hendhSchoolquaauto
+*  Dmitrii
+*  @Amidds
